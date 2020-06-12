@@ -2,7 +2,7 @@
   UTI do Cabelo - Políticas de Privacidade
 </h3>
 
-Por este instrumento eletrônico, WF DESENVOLVIMENTO, pessoa física com sede na cidade de Ocara - CE, informa a sua POLÍTICA DE PRIVACIDADE, conforme as disposições abaixo discriminadas:
+  Por este instrumento eletrônico, WF DESENVOLVIMENTO, pessoa física com sede na cidade de Ocara - CE, informa a sua POLÍTICA DE PRIVACIDADE, conforme as disposições abaixo discriminadas:
 
   - Noções Gerais:
     
